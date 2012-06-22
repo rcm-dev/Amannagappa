@@ -1,1 +1,0 @@
-Amannagappa Resort System
